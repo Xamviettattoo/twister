@@ -1,2 +1,3 @@
 # twister
 Twister Xăm Việt Tattoo
+<p>Chào mừng các bạn đến với website của artist XĂM VIỆT TATTOO, nơi mang đến cho các bạn sự tin tưởng và hài lòng tuyệt đối về sự chuyên nghiệp, an toàn cũng như giá cả. Với XĂM VIỆT TATTOO nhiều năm kinh nghiệm cùng với máy móc và những trang thiết bị chuyên dụng, mực xăm chất lượng cho màu sắc tươi sáng, bền màu và hàng chục ngàn mẫu catalogue cho các bạn dễ dàng lựa chọn cho mình 1 hình xăm ưng ý nhất, chúng tôi chắc chắn sẽ mang đến cho các bạn sự hài lòng tuyệt đối về chất lượng hình xăm với giá tiền hợp lý. Ngoài ra, chúng tôi có chế độ bảo hành sau khi xăm nhằm tạo sự tin tưởng tuyệt đối cho khách hàng về chất lượng.</p>
